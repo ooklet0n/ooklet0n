@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @ooklet0n
+- 👀 I’m interested in ... digital art and glitching
